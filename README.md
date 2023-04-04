@@ -1,2 +1,0 @@
-# ibrahimcakmakk.github.io
-Hoverboard
